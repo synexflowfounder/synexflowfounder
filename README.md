@@ -27,7 +27,7 @@ Every product must demonstrate measurable ROI and compliance within its operatin
 
 
 
-Location: Dubai / Ibiza  
+Location: Dubai / Singapore 
 Website: *(in progress)*  
 Contact: synex.founder@proton.me  
 
